@@ -1,0 +1,1 @@
+# idiotdoomspiral.github.io
